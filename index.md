@@ -4,3 +4,25 @@ Danny Trejo [ˈtɾexo] (* 16. Mai 1944 in Los Angeles als Dan Trejo Junior) ist 
 Danny Trejo ist verheiratet und hat drei Kinder. Er ist ein Cousin des Regisseurs Robert Rodriguez, der ihn auch regelmäßig in seinen Filmen als Darsteller einsetzt. Für Rodriguez spielte Trejo unter anderem den Machete Cortez in allen vier Spy-Kids-Filmen sowie in den aus der Figur entstandenen Filmen Machete und Machete Kills. In Machete hatte er seine erste Hauptrolle.
 
 ##Filme &| Serien :movie_camera:
+-----------------------------------------------------|-----------------------------------------------------
+1996: From Dusk Till Dawn | 1998–1999: Walker, Texas Ranger 
+1999: From Dusk Till Dawn 2 – Texas Blood Money | 2000: Akte X – Die unheimlichen Fälle des FBI 
+2000: From Dusk Till Dawn 3 – The Hangman’s Daughter | 2005: Desperate Housewives
+2000: Wild Christmas (Reindeer Games) | 2007: Stargate Atlantis 
+2001: Spy Kids | 2009–2010: Breaking Bad 
+2002: Spy Kids 2  | 2010: Burn Notice 
+2002: xXx – Triple X (xXx) | 2011–2012: Sons of Anarchy 
+2003: Mission 3D ) | 2011: Bones – Die Knochenjägerin
+2008: Alone in the Dark II | 2014: Navy CIS: L.A. 
+2010: Predators | 2015–2016: From Dusk Till Dawn: The Series 
+2010: Machete | 2017–2019: The Flash 
+2010: Death Race 2 | 
+2011: Spy Kids – Alle Zeit der Welt | 
+2012: Death Race: Inferno | 
+2013: Machete Kills | 
+2018: Death Race: Beyond Anarchy | 
+2019: 3 from Hell | 
+
+ 
+ 
+
